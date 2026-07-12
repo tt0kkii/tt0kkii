@@ -1,5 +1,5 @@
 <p align="center">
-i did not try making this look good ok
+Well i just happen to be walking by and i saw u two lovely ladies...walkin' ...how u doin' kawaii..neko girls...nya rawr~~~~~ ;)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
