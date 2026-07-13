@@ -1,5 +1,5 @@
 <p align="center">
-Well i just happen to be walking by and i saw u two lovely ladies...walkin' ...how u doin' kawaii..neko girls...nya rawr~~~~~ ;)
+hi art by yours truly!!!! >3<
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -8,7 +8,8 @@ Well i just happen to be walking by and i saw u two lovely ladies...walkin' ...h
 </p>
 
 <p align="center">
-<img width="200" alt="output-onlinegiftools (1)" src="https://github.com/user-attachments/assets/4833bdbc-22a5-44b0-bd63-4d899a0487be" />
+<img width="400" alt="538_Sem_Titulo_20260713104939" src="https://github.com/user-attachments/assets/5e997b95-2d07-4c62-b58d-70673e699cff" />
+
 
 
 <p align="center">
